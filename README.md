@@ -1,2 +1,3 @@
-Promjene iz visual studio 
-20210307
+
+Nakon gledanja videa. 
+
