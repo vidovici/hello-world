@@ -1,7 +1,2 @@
-erfew
-rew
-rew
-r
-ewr
-ew
-rew
+Promjene iz visual studio 
+20210307
