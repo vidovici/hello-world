@@ -1,7 +1,10 @@
 
 Nakon gledanja videa. 
 
-Joö jendom
+Jo≈° jendom
 
 ****************
+
+promjena iz browsera
+
 
